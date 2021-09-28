@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jilay047
 - 👀 I’m interested in Science and Technology
-- 🌱 I’m currently learning Lrogramming
+- 🌱 I’m currently learning Programming
 - 💞️ I’m looking to parners in learnings.
 - 📫 How to reach me instagram jilaymc_15
 
